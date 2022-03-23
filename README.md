@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Zeyu @zeyumaphys
-- 👀 I’m interested in particle physics.
 - 🌱 I’m currently learning everything! 
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me zeyumalisa@gmail.com 
